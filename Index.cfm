@@ -1,1 +1,1 @@
-Project Managment is also important to deliver the projects Properly.   
+Project Managment is also important to deliver the projects Properly.    
